@@ -71,18 +71,18 @@ Got both hands installed and the clock is done. This part required some reprinti
 
 
 ## Lookout and Lapse Video Links - Total Hours - 7 Hours 31 Minutes 44 Seconds
-https://lapse.hackclub.com/timelapse/Ih7auv3bP2Pz
-https://lapse.hackclub.com/timelapse/1Q9Z8VS_QYa6
-https://lapse.hackclub.com/timelapse/mMt9YNOjtZlM
-https://lapse.hackclub.com/timelapse/bgRHnLwZItAk
-https://lapse.hackclub.com/timelapse/Y3ABNOYRNAYv
-https://lapse.hackclub.com/timelapse/FlB8kq9YVl9M
-https://lapse.hackclub.com/timelapse/uVqtOcL4sAWX
-https://lapse.hackclub.com/timelapse/iR15Fa9CtMj_
-https://lapse.hackclub.com/timelapse/Hj0gNZMBJt2A
-https://lapse.hackclub.com/timelapse/iEr2HYrzZr9d
-https://lapse.hackclub.com/timelapse/bv6t_ZygHol6
-https://lapse.hackclub.com/timelapse/R0QDsEQ1unJy
-https://lapse.hackclub.com/timelapse/AZlKVNfkxd-2
-https://lapse.hackclub.com/timelapse/mj1ywATMzYxy
-https://lapse.hackclub.com/timelapse/qfwnKp-Uq-ZX
+"https://lapse.hackclub.com/timelapse/Ih7auv3bP2Pz"
+"https://lapse.hackclub.com/timelapse/1Q9Z8VS_QYa6"
+"https://lapse.hackclub.com/timelapse/mMt9YNOjtZlM"
+"https://lapse.hackclub.com/timelapse/bgRHnLwZItAk"
+"https://lapse.hackclub.com/timelapse/Y3ABNOYRNAYv"
+"https://lapse.hackclub.com/timelapse/FlB8kq9YVl9M"
+"https://lapse.hackclub.com/timelapse/uVqtOcL4sAWX"
+"https://lapse.hackclub.com/timelapse/iR15Fa9CtMj_"
+"https://lapse.hackclub.com/timelapse/Hj0gNZMBJt2A"
+"https://lapse.hackclub.com/timelapse/iEr2HYrzZr9d"
+"https://lapse.hackclub.com/timelapse/bv6t_ZygHol6"
+"https://lapse.hackclub.com/timelapse/R0QDsEQ1unJy"
+"https://lapse.hackclub.com/timelapse/AZlKVNfkxd-2"
+"https://lapse.hackclub.com/timelapse/mj1ywATMzYxy"
+"https://lapse.hackclub.com/timelapse/qfwnKp-Uq-ZX"
